@@ -5,4 +5,5 @@
   - proudly supporting gaza 💗
   - meow
   - PLEASE READ THIS BEFORE U INTERACT: https://rentry.co/sigmascats
+  - i love my partner 💗
 
