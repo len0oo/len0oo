@@ -3,4 +3,4 @@
   - gazapalestine supoortion rentry links: (https://rentry.co/hearts4gaza)
   - rentry: https://rentry.co/fjuboys
   - pronouns.page: https://en.pronouns.page/@lennxox
-  - I love my boothill bbg <3
+  
